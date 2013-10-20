@@ -1,3 +1,5 @@
+----------This Content for Wedding Studio Website (PATAWADEE STUDIO)------------------
+
 
 CONTENTS OF THIS FILE
 ---------------------
